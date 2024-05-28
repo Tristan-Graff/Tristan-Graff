@@ -2,6 +2,6 @@
 - 👀 I’m interested in breaking into cyber security
 - 🌱 I’m currently learning networking
 - 💞️ I’m looking to collaborate on job opportunities
-- 📫 How to reach me [MyLinkedIn](https://www.linkedin.com/in/tristan-graff-546781157/)
+- 📫 You can reach me at [MyLinkedIn](https://www.linkedin.com/in/tristan-graff-546781157/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I play music, games, and sports – a mix of fun and fitness!
